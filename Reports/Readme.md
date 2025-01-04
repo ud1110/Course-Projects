@@ -1,1 +1,1 @@
-wow
+The reports will give a complete description of the project. For the project titled "Analytical and Preparative Scale Chromatographic Techniques", the report is very large as every group member has prepared his/her own report. My part is the one which is covered in the beginning (I have specified it by writing my name over there, Utkarsh Dogra).
